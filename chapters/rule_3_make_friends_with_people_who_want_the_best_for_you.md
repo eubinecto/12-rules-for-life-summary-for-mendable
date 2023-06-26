@@ -1,4 +1,6 @@
-# The wrong companions can drag you down, so choose your friends wisely.
+#  Make friends with people who want the best for you
+
+> 💡 The wrong companions can drag you down, so choose your friends wisely.
 
 One of the author’s childhood friends never left the prairies of his northern Canadian hometown, Fairview, Alberta. Instead, he stuck around and ended up among the town’s other ne’er-do-wells.
 

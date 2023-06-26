@@ -1,4 +1,6 @@
-# Care for yourself with the same tenderness you would a loved one.
+# Rule 2 - Treat yourself like someone you are responsible for helping
+
+> 💡 Care for yourself with the same tenderness you would a loved one.
 
 If your dog was sick and the vet prescribed it medication, you wouldn’t second-guess the doctor and leave the prescription unfilled would you? And yet, one-third of people ignore the medical prescriptions they’re given by doctors, which begs the question: why do we take better care of our pets than ourselves?
 
